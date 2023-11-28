@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @delbartPou3
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...2626d
+- 🌱 I’m currently learning ...2626dxc
 - 💞️ I’m looking to collaborate on ...ffffgfgfggfgfvvvdd99999dfdfdf
 - 📫 How to reach me ...333fgfgfgfg,; ccvcvcv
 02032030vvvvv
